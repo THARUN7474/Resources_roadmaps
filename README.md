@@ -3,6 +3,7 @@ Here you can find links related to roadmaps, ai tools,websites , playlists, cour
 
 
 ******************************************AI TOOLS--RELATED********************************************
+
 https://www.digitalsamaritan.co/
 
 https://theresanaiforthat.com/
